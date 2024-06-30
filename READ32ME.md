@@ -1,1 +1,0 @@
-# rssc32hool-cv
